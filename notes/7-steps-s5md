@@ -1,0 +1,5 @@
+# 7 STEP PROCESS
+
+
+## Step 2 - PLAN THE PROJECT
+
